@@ -1,6 +1,6 @@
 # Hello!
 [![Discord](https://r.resimlink.com/3HUsC.png)](https://discord.com/users/797108592905551943)
-![deneme](https://r.resimlink.com/MloCqXebm.png)
+![deneme](https://r.resimlink.com/McbDLtzs.png)
 ## ❓ About
 
 
