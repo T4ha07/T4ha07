@@ -4,4 +4,4 @@
 ## ❓ About
 
 
-- 🔱 Hi, I’m Taha
+- 🔱 Hi, I'm Taha, I'm a discord developer. I also code in my spare time.
